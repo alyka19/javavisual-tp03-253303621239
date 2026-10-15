@@ -24,3 +24,4 @@ AP3_Tugas/
 Nama    : Alyka Shakira Lubis
 Nim     : (253303621239)
 Kelas   : Semester 3 Pagi A
+Link Google Docs : https://docs.google.com/document/d/1NfQNNXsIrucDt7KqxUM5YLN8f7SzGLRA_5qK-nVlh0g/edit?usp=sharing
